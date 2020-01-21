@@ -1,1 +1,0 @@
-# MaprangTanchanok.github.io
